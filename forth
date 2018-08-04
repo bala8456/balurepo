@@ -1,4 +1,0 @@
-Commitment intrnal
-hoooooo
-concrete
-
